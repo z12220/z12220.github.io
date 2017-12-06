@@ -1,4 +1,4 @@
-netflix.com is [files ](https://github.com/z12220 "ddd")sharing services that offers its users a good service for hosting data. netflix have two different membership subscription: netflix free account and netflix premium account. We share some working netflix premium username password accounts list for free, December 2017, January 2018
+netflix.com is files sharing services that offers its users a good service for hosting data. netflix have two different membership subscription: netflix free account and netflix premium account. We share some working netflix premium username password accounts list for free, December 2017, January 2018
 
 .
 
